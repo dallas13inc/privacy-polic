@@ -1,1 +1,1 @@
-# reseller-privacy
+# privacy policy
